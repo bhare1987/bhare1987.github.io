@@ -1,1 +1,0 @@
-# Brandon Hare's Blog
